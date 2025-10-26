@@ -1,6 +1,6 @@
 # Hi there, I'm [Estifanos Terefe Sahle]! 👋
 
-![Banner Image](your_banner_image_url_here)
+![Banner Image](https://share.google/images/XVCXB890QUCqNym3M)
 
 ## About Me 🚀
 
